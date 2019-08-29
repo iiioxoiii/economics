@@ -15,12 +15,15 @@ El mercado del alquiler turístico:
 
 ### Titulars
 «Simplificar el tràmite para huertos solares pequeños destrabaría 1.700 millones al año."
+
 «Las ciudades del futuro seran inteligentes o no seràn" por Luis Frauca.
+
 «La realidad aumentada reinventa las construcciones de Lego»
 
 ## Cincodias 28/08/2019
 ### Titulars
 «Bruselas investiga a Google por favorecer a su servicio de búsqueda de empleo Google for Jobs.
+
 «El juego on line pisa le freno tras las cifras de 2018»
 - Al 2018 es van ingressar 700 mil·lions per casinos i altres en format digital-
 - Al 2n trimestre de 2019 quantitats jugades: 4.627.7 mil·lions.
@@ -29,6 +32,7 @@ El mercado del alquiler turístico:
 ## Cincodias 27/08/2019
 ### Titulars
 «Ética empresa, el giro copernicano»
+
 «Washington y París llegan a un pacto sobre la tassa Google»
 
 ## Cincodias 24 y 25/08/2019
